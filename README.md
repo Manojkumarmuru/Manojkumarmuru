@@ -4,6 +4,10 @@
 - And I love how there's always more to learn!
 - 📫 How to reach me: manummk95@gmail.com
 
+
+
+[https://media.giphy.com/media/M9gbBd9nbDrOTu1Mqx/giphy.gif](https://c1.wallpaperflare.com/preview/817/193/279/eye-information-technology-digital.jpg)
+
 <!---
 Manojkumarmuru/Manojkumarmuru is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
